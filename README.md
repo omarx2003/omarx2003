@@ -1,0 +1,5 @@
+- im omar
+- 👀 I’m interested in python and C and i want to learn web devoloping but im still a begener 
+- 🌱 I’m currently learning python and C
+- 📫 How to reach me // telegram account @omarx2003
+- ⚡ Fun fact:  water is life
